@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PerpetualLife
+- 👀 I’m interested in modding, Homestuck, and games in general (Though I'm not always good at them)
+- 🌱 I’m currently learning Data Structures and other college stuff
+- 💞️ I’m looking to collaborate on mods or anything I'm interested in really, as a break from projects
